@@ -1,4 +1,4 @@
-# 
+# Código aberto Filmora fluxo de trabalho para Mac OS | Profissional Filmora fluxo de trabalho para PC Windows. Com camadas de forma e normalização — otimizado para máximo desempenho em cada plataforma.
 
 
 
